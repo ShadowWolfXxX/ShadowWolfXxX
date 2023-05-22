@@ -1,5 +1,5 @@
 - 👋 howdy, I’m @ShadowWolfXxX
-- 👀 I’m interested in program and someting else
+- 👀 I’m interested in program and something else
 - 🌱 I’m currently learning in unverstie and internet so wait for me 
 - 💞️ I’m looking to collaborate on any work soon
-- 📫 How to reach me eh i will think of it 
+- 📫 How to reach me...eh i will think of it 
